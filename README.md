@@ -1,2 +1,0 @@
-# JACKVAXtech272SUMMER
- 
